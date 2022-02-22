@@ -1,1 +1,3 @@
 # personalinjurylawyersAdelaide
+
+Here at TGB <a href="https://tgb.com.au/areas-served/tgb-personal-injury-lawyers-adelaide/">Personal Injury Lawyers Adelaide</a>, we let you concentrate on your recovery while our team of experienced personal injury lawyers manages your claim for you. If you believe you are a personal injury victim, it is essential to know the best way to approach these situations. As one of Australia’s leading personal injury law firms, we understand just how daunting and overwhelming the personal injury claim process can be. Specialising in personal injury law, our lawyers are committed to providing our clients with the best possible result at the earliest opportunity.
